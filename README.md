@@ -1,1 +1,1 @@
-# Sebasti-n-Rosal-CV-Espa-ol
+# Sebastian-Rosal-CV-Analista de datos
